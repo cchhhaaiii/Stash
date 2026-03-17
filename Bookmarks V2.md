@@ -2,7 +2,7 @@ Asian Baddies :
 
 1) [yejener](https://www.instagram.com/yejener/)
 2) [honeygold](https://www.instagram.com/honeygoldxx/)
-3) [mira song](https://onlyfans.com/mirasong)
+3) [mira song](https://x.com/MiraaSongg)
 4) [kimi yoon](https://www.instagram.com/kimiyoonn/)
 5) [isabelgonewild](https://onlyfans.com/isabelgonewild)
 6) [bunni.emmie](https://www.instagram.com/babi.emma/)

@@ -1,0 +1,23 @@
+Asian Baddies : yejener
+                honeygold
+                mira song
+                kimi yoon
+                isabelgonewild
+                bunni.emmie
+                vietbunnyy
+                raesuki
+                asian.candy
+                asianbunnyx
+                bestasiangirlfriend
+                jessiwantsu
+                rocketreyna [BBW]
+                peachykai [BBW]
+                bellabaebunda [BBW]
+                Daisymayyxo
+                Lilcutieraee
+                Kazumisworld
+                Vivichen
+                Lucy Mochi [not sure]
+                kawaiisofey
+                kushqueenj
+                mirasong

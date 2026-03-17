@@ -1,27 +1,28 @@
 Asian Baddies : 
-1) yejener
-2) honeygold
-3) mira song
-4) kimi yoon
-5) isabelgonewild
-6) bunni.emmie
-7) vietbunnyy
-8) raesuki
-9) asian.candy 
-10) asianbunnyx 
-11) bestasiangirlfriend 
-12) jessiwantsu 
-13) rocketreyna [BBW] 
-14) peachykai [BBW] 
-15) bellabaebunda [BBW] 
-16) Daisymayyxo 
-17) Lilcutieraee 
-18) Kazumisworld 
-19) Vivichen Lucy Mochi [not sure] 
-20) kawaiisofey 
-21) kushqueenj 
-22) mirasong 
-23) Jasmine Teaa 
-24) Morena Mitch 
-25) Sofia Silk
-26) Duong Nguyet Cam
+
+1) [yejener](https://www.instagram.com/yejener/)
+2) [honeygold](https://www.instagram.com/honeygoldxx/)
+3) [mira song](https://onlyfans.com/mirasong)
+4) [kimi yoon](https://www.instagram.com/kimiyoonn/)
+5) [isabelgonewild](https://onlyfans.com/isabelgonewild)
+6) [bunni.emmie](https://www.instagram.com/babi.emma/)
+7) [vietbunnyy](https://x.com/vietbunnyy)
+8) [raesuki](https://onlyfans.com/raesuki)
+9) [asian.candy](https://onlyfans.com/asian.candy)
+10) [asianbunnyx](https://x.com/_asianbunnyx)
+11) [bestasiangirlfriend](https://onlyfans.com/bestasiangirlfriend)
+12) [jessiwantsu](https://onlyfans.com/jessiwantsu)
+13) [rocketreyna [BBW]](https://x.com/rocketreyna)
+14) [peachykai [BBW]](https://x.com/_peachykai)
+15) [bellabaebunda [BBW]](https://www.instagram.com/bigbellabunda/)
+16) [Daisymayyx](https://x.com/CutieDaisyMay)
+17) [Lilcutieraee](https://onlyfans.com/lilcutieraee)
+18) [Kazumisworld](https://x.com/kazumisworld)
+19) [Vivichen Lucy Mochi](https://www.instagram.com/exploremochi/)
+20) [kawaiisofey](https://onlyfans.com/kawaiisofey)
+21) [kushqueenj](https://www.instagram.com/kushqueenj/)
+22) [mirasong](https://onlyfans.com/mirasong)
+23) [Jasmine Teaa](https://x.com/hijasmineteaa)
+24) [Morena Mitch](https://x.com/morenamitch)
+25) [Sofia Silk](https://x.com/silksophia)
+26) [Duong Nguyet Cam](https://x.com/Tizmolly1991)

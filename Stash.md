@@ -1,3 +1,4 @@
+[[Miscellaneous/meta/Stash]]
 Asian Baddies : 
 
 1) [yejener](https://www.instagram.com/yejener/)

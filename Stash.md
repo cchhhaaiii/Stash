@@ -12,7 +12,7 @@
 
 # Our Age Chick, Thoughts??
 
-<img src="New%20Poses%20(7).jpg" width="350"/> <img src="Zephyr%20(1).jpg" width="350"/>
+<img src="New%20Poses%20(7).jpg" width="500"/> <img src="Zephyr%20(1).jpg" width="500"/>
 
 
 Coming up next : Indian Baddies.

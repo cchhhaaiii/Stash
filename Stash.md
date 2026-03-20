@@ -9,6 +9,12 @@
 # Black Whores
 [thekiranoir](https://x.com/thekiranoir) • [xDarlingNicky](https://x.com/xDarlingNicky) • [TineeBadass](https://x.com/TineeBadass) • [VeronicaGlasses](https://x.com/VeronicaGlasses) • [charlieBhustle2](https://x.com/charlieBhustle2) • [SymoneSkye](https://x.com/SymoneSkye) • [BBabygirlhazel](https://x.com/BBabygirlhazel) • [lustforlola](https://x.com/lustforlola) • [Raquel Savage](https://x.com/Raquel_Savage) • [RaquelOnlyfans](https://x.com/RaquelOnlyfans) • [JadeandJamal](https://x.com/JadeandJamal) • [throatologistt](https://x.com/throatologistt) • [ndivero444](https://x.com/ndivero444) • [Advoree](https://x.com/Advoree) • [msixelaa](https://x.com/msixelaa_) • [msafricangoddes](https://x.com/msafricangoddes) • [Masokiss](https://x.com/Masokiss_) • [lilbabyyashleyy](https://x.com/lilbabyyashleyy) • [queen_tahshar](https://x.com/queen_tahshar) • [tallassbailey](https://x.com/tallassbailey) • [kkvsh](https://x.com/kkvsh) • [qimmahrussovip](https://x.com/qimmahsworld) • [zmeenaorrxclusive](https://x.com/ZmeenaO) • [chelasway](https://x.com/therealchela) • [REGANKAY](https://x.com/keepcheckn4me) • [thejhonniblaze](https://x.com/HEYIMJHONNI) • [lalakoi](https://x.com/lalakoi1) • [muvamoore](https://x.com/muvamoore) • [selenablackgoddess](https://x.com/_selena_black_) • [persephanii](https://x.com/persephanii) • [MiaaSapphire](https://x.com/MiaaSapphire) • [itslunarliv](https://x.com/itslunarliv) • [barbie_is_juicy](https://x.com/barbie_is_juicy) • [lolatreatz](https://x.com/lolatreatz) • [beckkywylin](https://x.com/beckkywylin) • [MissBNasty](https://x.com/MissBNasty) • [DemiSutra](https://x.com/DemiSutra) • [moriahmills](https://x.com/moriahmills) • [misslexiii](https://www.instagram.com/_misslexiii) • [Lalaxkoi](https://x.com/Lalaxkoi) • [itslailaxo](https://x.com/itslailaxo) • [realmuvarose](https://x.com/realmuvarose) • [Crisana Mariyah](https://x.com/Crisana_Mariyah) • [empressellievip](https://x.com/empressellievip)
 
+
+# Our Age Chick, Thoughts??
+
+<img src="New%20Poses%20(7).jpg" width="350"/> <img src="Zephyr%20(1).jpg" width="350"/>
+
+
 Coming up next : Indian Baddies.
 
 Got any requests? text me.

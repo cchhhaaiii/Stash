@@ -17,6 +17,6 @@
 
 
 
-Coming up next : Indian Baddies.
+Coming up next : Teen Baddies.
 
 Got any requests? text me.

@@ -22,5 +22,13 @@ Emily (OG chick) :  [Emily Bloom](https://mega.nz/folder/qg40WR4Y#L_Jl5FkECjnWgV
 
 
 Latest : Teen Baddies.
+
+
+
 Cuming up next : Indian Badies
+
+
+
+
 Got any requests? text me.
+
